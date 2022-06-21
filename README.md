@@ -2,7 +2,7 @@ Olá!
 
 -Eu sou a Karen 👾
 
--Atualmente estou trabalhando com projetos freelances, voltados para área de social media.
+-Atualmente estou trabalhando com projetos freelas, voltados para área de social media.
 
 -📖 Estudando Quality Assurance e Design.
 
