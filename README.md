@@ -1,12 +1,12 @@
-Olá!
+Hi!
 
--Eu sou a Karen 👾
+-I'm Karen 👾
 
--Atualmente estou trabalhando com projetos freelas, voltados para área de social media.
+-Working on my future projects...
 
--📖 Estudando Quality Assurance e Design.
+-📖 Quality Assurance e Design.
 
--🔮 Lema: "Aprender sempre!"
+-🔮 Quote:"Learning is the only thing the mind never exhausts, never fears, and never regrets"- (Leonardo da Vinci)
 
 
 
